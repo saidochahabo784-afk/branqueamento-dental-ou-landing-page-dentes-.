@@ -1,1 +1,1 @@
-# branqueamento-dental-ou-landing-page-dentes-.
+# branqueamento-dental
